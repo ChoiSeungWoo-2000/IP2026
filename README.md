@@ -18,3 +18,10 @@ https://youtu.be/0V6m6L--oVs
 
 https://github.com/user-attachments/assets/e6b7ee4a-95d6-4ceb-8384-da94749c3066
 
+
+***
+
+# hw3
+
+<img width="552" height="250" alt="hw3" src="https://github.com/user-attachments/assets/6d8b51e3-12e6-4517-a897-4e3ad2f1dabf" />
+
