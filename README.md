@@ -1,4 +1,4 @@
-# IP2026
+# IP2026 20242044 최승우
 
 # hw1
 https://youtu.be/GKATYChVZNQ
